@@ -1,1 +1,1 @@
-![pointing-black](https://github.com/user-attachments/assets/68f427f3-fa5e-498f-9ef5-7d1ede65be01)
+![composition-parental-advisory](https://github.com/user-attachments/assets/7ade81eb-4949-4c02-9ca9-6ddd2d903759)
