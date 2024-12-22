@@ -1,1 +1,1 @@
-![...](https://github.com/user-attachments/assets/1321d411-879e-47e3-bcac-bfbd19643a95)
+![composition-parental-advisory](https://github.com/user-attachments/assets/fd125502-ca4e-4621-985b-a9bdaf2ca320)
