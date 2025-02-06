@@ -1,4 +1,2 @@
 ![rr](https://github.com/user-attachments/assets/9cda2682-06c4-47c5-b007-00d4884abecc)
-<p align=”center”>
-<img width=”200" height=”200" src=”https://user-images.blahblah/75753187/123358567-aac7b900-d539-11eb-8275-0b380264bb4c.png" alt=”my banner”>
-</p>
+![imageonline-co-gifimage](https://github.com/user-attachments/assets/54671231-7076-4d6c-a013-16f371b332c4)
